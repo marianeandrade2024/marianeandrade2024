@@ -2,8 +2,7 @@
 
 Meu nome é Mariane Andrade 
 
-- Estou estudando no alura
+- Estou estudando no Tiradentes
 
-
-https://tenor.com/pt-BR/view/cat-cat-meme-funnt-cat-black-cat-sleepy-cat-gif
+![](https://media1.tenor.com/m/47qpxBq_Tw0AAAAd/cat-cat-meme.gif)
 
